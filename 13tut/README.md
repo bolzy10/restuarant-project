@@ -9,4 +9,4 @@ Oluwuyi Success
 Taiwo Kristiloluwa Abraham
 Ezechi Nweke
 Makinde Samuel
-Adeoye Korede
+Adeoye Korede.
